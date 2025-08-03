@@ -1,1 +1,1 @@
-# Sustainable-Building-Design.
+# Sustainable-Building-Design
